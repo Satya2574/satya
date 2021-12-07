@@ -1,1 +1,1 @@
-i love u singh
+i love u satya
