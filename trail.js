@@ -1,7 +1,1 @@
-console.logdnjfnsjnf;
-fkvakfnvf;
-fkvndfvnkdfvk;
-vkdfkvkd;
-nbbbbbbb;
-jhbhj;
-jhjhh;
+i love u singh
